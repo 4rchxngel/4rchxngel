@@ -1,5 +1,7 @@
 <p align="center">
-  <img src="https://imagetourl.cloud/3eo21bvu.png" alt="alienstage" width="55" />
+  <a href="https://sweetandsour.atabook.org/">
+    <img src="https://imagetourl.cloud/3eo21bvu.png" width="17%" alt="easter egg" />
+  </a>
 </p>
 
 ![](https://imagetourl.cloud/rcxzifsy.jpg)
