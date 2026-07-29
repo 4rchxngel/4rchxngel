@@ -14,6 +14,10 @@
 | ${{\color{#FFE470}  ᛝ　𓏼　mine　.}}$ ${{\color{#FEB8DA} 16　.}}$ ${{\color{#FFF1EE} ENFJ　Ⳋ𝅄}}$ |
 | :--- |
 
+<div align="center">
+  <a href="https://pompompurinn.atabook.org">⭑ ˢⁱᵍⁿ ᵃᵗᵃ .ᐟ</a>
+</div>
+
 ![](https://imagetourl.cloud/fchhpoh2.png)
 
 ![](https://imagetourl.cloud/cfrqjgur.png)
