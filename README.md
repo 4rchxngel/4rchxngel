@@ -11,7 +11,7 @@
   <img src="https://imagetourl.cloud/p4hpb07n.gif" width="100" alt="Command Center">
 </p>
 
-| ${{\color{#FFE470}  ᛝ　𓏼　mine　.}}$ ${{\color{#FEB8DA} 16　.}}$ ${{\color{#FFF1EE} ENFJ　Ⳋ𝅄}}$ |
+| ${{\color{#FFE470}  ᛝ　𓏼　mine　.}}$ ${{\color{#FEB8DA} 16　.}}$ ${{\color{#FFF1EE} she　Ⳋ𝅄}}$ |
 | :--- |
 
 <div align="center">
